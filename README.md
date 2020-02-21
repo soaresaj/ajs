@@ -1,0 +1,2 @@
+# ajs
+Repositório Particular - iniciais
